@@ -1,4 +1,3 @@
 # progettoperfetto
-L'ansia della pancia. BRUTTA STORY
-Proviamo a lavorarci in due gruppi
-Meglio
+L'ansia della pancia. BRUTTA STORIA
+cancellato tutto
